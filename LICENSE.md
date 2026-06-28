@@ -1,4 +1,4 @@
-# 
+# Open Source Adobe InDesign effects for Mac OS | Top Adobe InDesign effects for PC Windows. Featuring image-placement and 3D-modeling — optimized for maximum performance on every platform.
 
 
 
